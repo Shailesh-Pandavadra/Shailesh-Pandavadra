@@ -77,14 +77,21 @@ Here are a few projects I've worked on or am currently building (some details an
 - 📧 Email: [pandavadra.shailesh@outlook.com](mailto:pandavadra.shailesh@outlook.com)  
 - 🔗 LinkedIn: [linkedin.com/in/pandavadra-shailesh](https://linkedin.com/in/pandavadra-shailesh)  
 
-### Currently seeking **Full-time permanent** roles only.  
-Not interested in Contract-to-Hire (C2H) or third-party payroll opportunities.  
+---
 
-### Open to roles with flexible locations:  
-Willing to relocate to **Pune, Bangalore, or outside India** for the right opportunity.  
-Available for **remote, hybrid, or onsite** positions.  
+## ⚠️ **Job Search Status & Preferences**
 
-### Interview and relocation preferences:  
-- All interview rounds can be conducted **virtually**.  
-- Willing to **relocate only after receiving an official offer letter**.  
-- Not interested in opportunities requiring onsite interviews before an offer or relocation without confirmation.
+> ### 🚀 Currently seeking **Full-time permanent** roles only.  
+> ❌ Not interested in Contract-to-Hire (C2H) or third-party payroll opportunities.  
+>  
+> ### 🌍 Open to roles with flexible locations:  
+> - Willing to relocate to **Pune, Bangalore, or outside India** for the right opportunity.  
+> - Available for **remote, hybrid, or onsite** positions.  
+>  
+> ### 📋 Interview & Relocation Preferences:  
+> - All interview rounds can be conducted **virtually**.  
+> - Willing to **relocate only after receiving an official offer letter**.  
+> - Not interested in onsite interviews before offer or relocation without confirmation.  
+
+---
+
