@@ -74,8 +74,10 @@ Here are a few projects I've worked on or am currently building (some details an
 
 ## 📫 Contact Me
 
-- 📧 Email: [pandavadra.shailesh@outlook.com](mailto:pandavadra.shailesh@outlook.com)  
-- 🔗 LinkedIn: [linkedin.com/in/pandavadra-shailesh](https://linkedin.com/in/pandavadra-shailesh)  
+I'm open to relevant opportunities and professional networking.  
+Feel free to reach out via the contact details below or from my GitHub profile.
+
+> 🧭 You can also find my contact info directly on my GitHub profile sidebar (email & social links).
 
 ---
 
